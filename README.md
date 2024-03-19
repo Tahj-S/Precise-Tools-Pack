@@ -1,1 +1,1 @@
-![](PreciseTools.png)
+![](Precise Tools Logo Transparent.png)
